@@ -1,0 +1,2 @@
+New skill
+More freedom 
